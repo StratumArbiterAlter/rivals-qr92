@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rivals Script elite, the #1 Script. Includes private server access and unlimited stamina for unbeatable
 
 
 
